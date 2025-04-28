@@ -67,6 +67,6 @@ And when it’s time to relax, I enjoy traveling to new places 🌍 and explorin
 
 You can reach me through the following platforms:
 
-- [LinkedIn](https://www.linkedin.com/in/adityajawanjal2021/)
+- [LinkedIn](https://www.linkedin.com/in/ashay-pandey-2b62b4185/)
 - [GitHub](https://github.com/Ashay0911)
   
